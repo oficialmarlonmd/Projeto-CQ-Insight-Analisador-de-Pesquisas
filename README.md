@@ -1,0 +1,1 @@
+# Projeto-CQ-Insight-Analisador-de-Pesquisas
